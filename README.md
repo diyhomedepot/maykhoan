@@ -5,7 +5,7 @@ máy khoan khác nhau và để lựa chọn được một chiếc <b>máy khoa
 lượng tốt để tân trang cũng như sửa sang cho gia đình hoặc sử dụng cho công
 trình xây dựng là một điều hết sức cần thiết mà không phải ai cũng biết. </span><span style="font-size: 14.0pt;"><o:p></o:p></span></div>
 <div style="margin-bottom: 10.0pt; margin-left: 0cm; margin-right: 0cm; margin-top: 0cm; text-align: justify;">
-<span style="font-size: 14pt;">Vậy mua <b><a href="https://diyhomedepot.vn/118/may-khoan.html" target="_blank">máykhoan bê tông</a></b> loại nào, ở đâu tốt? Bài viết dưới đây chúng tôi sẽ chia sẻ
+<span style="font-size: 14pt;">Vậy mua <b><a href="https://diyhomedepot.vn/118/may-khoan.html" target="_blank">máy khoan bê tông</a></b> loại nào, ở đâu tốt? Bài viết dưới đây chúng tôi sẽ chia sẻ
 cho các bạn những &nbsp;kinh nghiệm hay kiến thức cơ bản nhất để bạn lựa chọ
 cho gia đình một chiếc máy khoan tốt và đảm bảo chất lượng.</span><span style="font-size: 14.0pt;"><o:p></o:p></span></div>
 <div style="margin-bottom: 10.0pt; margin-left: 0cm; margin-right: 0cm; margin-top: 0cm; text-align: justify;">
